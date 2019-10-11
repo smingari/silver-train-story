@@ -8,3 +8,6 @@ respected Jedi master Obi Wan Kenobi to train him in the ancient art. Anakin sho
 
 Through training, Anakin becomes a very strong and skilled padawan. Jedi master Obi Wan Kenobi is proud of 
 his aspiring padawan
+
+After that, Anakin starts to travel around galaxy and meets lots of friends from different places. During the jorney, he
+grows a lots and get sufficient experience in using his power. 
